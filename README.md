@@ -1,1 +1,0 @@
-# AANOVA-Technologies
